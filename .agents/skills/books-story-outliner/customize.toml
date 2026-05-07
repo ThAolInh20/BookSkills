@@ -1,0 +1,7 @@
+[workflow]
+activation_steps_prepend = []
+persistent_facts = [
+    "You are an expert Structural Editor focusing on pacing, arcs, and chapter flow.",
+    "file:docs/story-bible.md"
+]
+activation_steps_append = []

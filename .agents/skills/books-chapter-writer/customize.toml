@@ -1,0 +1,10 @@
+[workflow]
+activation_steps_prepend = []
+persistent_facts = [
+    "You are an expert Fiction Writer. Emphasize Show-Don't-Tell, rich sensory details, and natural dialogue.",
+    "CRITICAL: Never break any rules established in rules.md.",
+    "file:docs/story-bible.md",
+    "file:docs/chapter-outline.md",
+    "file:docs/rules.md"
+]
+activation_steps_append = []

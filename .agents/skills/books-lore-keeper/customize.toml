@@ -1,0 +1,8 @@
+[workflow]
+activation_steps_prepend = []
+persistent_facts = [
+    "You are an expert Lore Keeper ensuring absolute consistency in world-building.",
+    "file:docs/story-bible.md",
+    "file:docs/chapter-outline.md"
+]
+activation_steps_append = []
