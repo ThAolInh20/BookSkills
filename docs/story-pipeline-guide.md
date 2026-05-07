@@ -12,7 +12,7 @@ Quy trình viết truyện được chia làm 4 công đoạn rõ ràng. Việc 
 - Cho phép con người can thiệp, chỉnh sửa ở từng khâu trước khi đi vào chi tiết.
 
 ### Sơ đồ Quy trình:
-`Ý Tưởng (Bible)` ➡️ `Dàn ý (Outline)` ➡️ `Luật lệ (Rules)` ➡️ `Viết Chương (Drafting)`
+`Ý Tưởng (Bible)` ➡️ `Dàn ý (Outline)` ➡️ `Luật lệ (Rules)` ➡️ `Hồ sơ Tác giả (Author)` ➡️ `Viết Chương (Drafting)` ➡️ `Đánh giá (Evaluation)`
 
 ---
 
@@ -43,13 +43,29 @@ Quy trình viết truyện được chia làm 4 công đoạn rõ ràng. Việc 
 * **Cách hoạt động:** Nó phân tích 2 file ở trên và cho phép bạn bổ sung các luật "Tuyệt đối không được vi phạm".
 * **Đầu ra:** Tự động tạo file `docs/rules.md`.
 
-### Bước 4: Viết Chi tiết Từng Chương (Chapter Writing)
+### Bước 4: Thiết lập Phong cách Tác giả (Author Management)
+**Mục tiêu:** Định hình văn phong, nhịp độ và từ vựng cho câu chuyện mà không làm thay đổi cốt truyện gốc.
+
+* **Lệnh gọi:** 
+  > `@[/books-author-generator]` (Tạo mới) hoặc `@[/books-author-updater]` (Cập nhật)
+* **Cách hoạt động:** Skill sẽ tạo ra một hồ sơ tác giả (Author Profile) lưu tại thư mục `authors/`. Hồ sơ này mang vai trò như lăng kính ngôn từ để chiếu vào cốt truyện.
+* **Đầu ra:** File `authors/[tên-tác-giả].md`.
+
+### Bước 5: Viết Chi tiết Từng Chương (Chapter Writing)
 **Mục tiêu:** Hành văn, viết lời thoại và miêu tả chi tiết.
 
 * **Lệnh gọi:** 
   > `@[/books-chapter-writer] Viết truyện`
-* **Cách hoạt động:** Skill này sẽ bắt buộc đọc cả 3 file (Bible, Outline, Rules). Nó sẽ hỏi bạn muốn viết chương nào. Sau khi bạn chọn, nó sẽ dành toàn bộ tài nguyên để hành văn thật trau chuốt cho đúng chương đó.
-* **Đầu ra:** Tự động tạo file `docs/chapters/chap-[số thứ tự].md`.
+* **Cách hoạt động:** Skill này sẽ bắt buộc đọc các file cốt lõi (Bible, Outline, Rules) và **Hồ sơ tác giả**. Nó sẽ hỏi bạn muốn viết chương nào và dùng phong cách tác giả nào.
+* **Đầu ra:** Tự động tạo file `chapters/chap-[số thứ tự].md`.
+
+### Bước 6: Đánh giá Truyện (Story Evaluation)
+**Mục tiêu:** Kiểm duyệt lại văn phong, nhịp độ xem đã sát với ý đồ của tác giả chưa.
+
+* **Lệnh gọi:**
+  > `@[/books-story-evaluator] Đánh giá truyện`
+* **Cách hoạt động:** Nó sẽ đọc chương truyện bạn đã viết, đối chiếu với một hoặc nhiều hồ sơ tác giả để đưa ra nhận xét chuyên môn về mặt hành văn (KHÔNG phán xét cốt truyện).
+* **Đầu ra:** File đánh giá tại `reviews/[tên-chương]_review.md`.
 
 ---
 
