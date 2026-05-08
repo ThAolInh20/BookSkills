@@ -14,72 +14,70 @@ Cậu trốn vào căn phòng nhỏ của mình, kéo chăn trùm kín đầu. N
 
 ***
 
-Bụi mù mịt. Mùi ẩm mốc xộc thẳng vào mũi khiến Aki ho sặc sụa.
+Gió lạnh buốt. Mùi ngai ngái của đất rữa và gỗ mục xộc thẳng vào mũi khiến Aki ho sặc sụa.
 
-Cậu mở mắt và nhận ra mình đang đứng giữa một phiên tòa khổng lồ. Không, nói đúng hơn là một tòa lâu đài đang trong quá trình sụp đổ. Những cây cột đá cẩm thạch to bằng vòng tay của ba người ôm đang nứt toác, nghiêng ngả. Mái vòm cao vút bị lủng những lỗ lớn, để lộ ra bầu trời màu xám xịt, vần vũ những đám mây giông đặc quánh. Bầu không khí ngột ngạt và nặng nề đến mức mỗi cái nhấc chân đều tốn sức lực gấp đôi bình thường.
+Cậu mở mắt và nhận ra mình đang đứng trong một căn nhà gỗ mục nát nằm chênh vênh bên bờ vực, vần vũ giữa một cơn bão lớn. Những cột vách gỗ kêu cọt kẹt như muốn gãy đôi dưới sức gió giật từng cơn. Mái nhà thủng lỗ chỗ, để lộ ra bầu trời màu xám xịt, cuồn cuộn những đám mây giông. Bầu không khí lạnh lẽo và nặng nề đến mức mỗi cái nhấc chân đều tốn sức lực gấp đôi bình thường.
 
-Ở giữa sảnh lớn, lơ lửng một quả cầu pha lê phát sáng rực rỡ. Bên trong quả cầu là hình ảnh thu nhỏ của một ngôi nhà ấm áp, có ánh đèn vàng và tiếng cười nói. Nhưng quả cầu ấy đang bị kéo căng ra bởi hai thế lực vô hình.
+Ở giữa sàn nhà loang lổ nước mưa, có một vũng nước nhỏ phản chiếu ánh đèn vàng ấm áp và tiếng cười nói của một gia đình. Phía dưới vũng nước ấy, ẩn hiện một bức ảnh gia đình cũ kỹ, nhòe nhoẹt. Nhưng bức ảnh đó đang bị giằng xé bởi cơn bão.
 
-Từ hai phía của tòa lâu đài, những bức tượng đá khổng lồ mang hình dáng của các thẩm phán không mặt đang dùng những sợi xích đen ngòm móc vào quả cầu, ra sức kéo về phía mình. 
+Từ ngoài khe cửa, những luồng gió bão đen ngòm như những bàn tay khổng lồ luồn lách vào, mang theo âm sắc của tiếng cãi vã, ra sức xé toạc bức ảnh và làm gợn đục vũng nước êm đềm. 
 
-*Rắc... Rắc...*
+*Xoạc... Xoạc...*
 
-Mặt quả cầu pha lê bắt đầu hiện lên những vết nứt chằng chịt. Tiếng ồn ào dội xuống từ bốn bức tường. Không phải tiếng chim kêu hay gió thổi, mà là những lời đay nghiến sắc lẹm.
+Mép bức ảnh bắt đầu rách toạc. Tiếng ồn ào cuộn theo từng cơn gió bão thét gào. Không phải tiếng sấm chớp, mà là những lời đay nghiến sắc lẹm.
 
 "Đồ vô trách nhiệm!"
 "Cô thì tốt đẹp chắc? Chỉ biết nhốt người khác trong cái lồng của cô!"
 
-Aki ôm lấy đầu. Khung cảnh trước mắt khiến cậu muốn phát điên. Quả cầu pha lê kia là phần ký ức trọn vẹn cuối cùng mà cậu còn giữ lại. Cậu không thể để nó vỡ.
+Aki ôm lấy đầu. Khung cảnh trước mắt khiến cậu muốn phát điên. Vũng nước nhỏ bé ấy, bức ảnh nhòe nhoẹt ấy là phần ký ức trọn vẹn cuối cùng mà cậu còn giữ lại. Cậu không thể để nó vỡ.
 
 *"Đứng ngây ra đó làm gì? Giành lại nó!"* 
 
-Giọng nói chói tai, cay nghiệt vang lên. Một dòng điện chạy dọc sống lưng Aki. Sống mũi cậu nhăn lại, đôi mắt hiền lành phút chốc trở nên sắc lẹm, mang đầy tính uy quyền tuyệt đối. 
+Một giọng nói cay nghiệt chợt rít lên trong đầu, châm chọc sự bất lực của cậu. Nhưng thay vì gầm thét vung vẩy vũ lực, lồng ngực Aki trĩu nặng một nỗi tuyệt vọng câm lặng. Đôi mắt hiền lành ngập nước. 
 
-Aki lao về phía quả cầu. Cậu không hề sợ hãi trước những bức tượng khổng lồ. 
+Aki lao về phía vũng nước. Cậu lấy thân mình che chắn lấy mặt nước, nằm rạp xuống mặt sàn trơn trượt mặc cho bão táp quất vào lưng.
 
-"Dừng lại ngay! Tất cả các người!" Aki gầm lên. Giọng cậu vang vọng khắp sảnh đường, mang theo sự tức giận và thói quen kiểm soát tột độ. "Quả cầu đó là của ta! Ta là người quyết định nó thuộc về ai!"
+"Đừng tan đi... Làm ơn, đừng vỡ..." Aki thì thầm đầy bất lực giữa tiếng sấm chớp. 
 
-Cậu vung hai tay lên không trung. Từ dưới lớp gạch nứt nẻ, những sợi xích rỉ sét lao lên như những con rắn khổng lồ, cuốn chặt lấy hai bức tượng đá. Aki dùng toàn bộ sức mạnh ý chí, nghiến răng kéo ngược chúng lại. Cậu muốn ép quả cầu pha lê dính lại với nhau. Cậu muốn ép những thứ đã đổ vỡ phải quay về chỗ cũ bằng vũ lực.
+Cậu dùng đôi tay trần gầy gò vốc nước mưa, cố gắng vuốt phẳng lại mép bức ảnh đã rách bươm, ra sức gom những mảnh ảo ảnh dính lại với nhau. Cậu muốn ôm lấy thứ ký ức mỏng manh ấy vào lòng.
 
-"Không ai được phép phá hủy nó nếu ta chưa cho phép!" Cậu gào lên, gân xanh nổi rõ trên trán.
+Nhưng càng cố ôm vào, bức ảnh càng rã ra dưới dòng nước lạnh. Những âm thanh chửi rủa trong gió quật mạnh đến mức gạt phăng vòng tay yếu ớt của Aki. Cậu càng cố níu kéo, vũng nước ấm áp càng trào ra, lẫn vào bùn lầy của sàn nhà. Đó là một sự vùng vẫy tuyệt vọng, giống hệt như đang dùng tay trần vớt bóng trăng dưới đáy nước.
 
-Nhưng càng cố dùng sức ép lại, quả cầu càng nứt toác dữ dội hơn. Áp lực khổng lồ từ những bức tượng phản kháng khiến các sợi xích của Aki bắt đầu đứt phựt. Bạo lực và sự kiểm soát gắt gao không thể hàn gắn được những mảnh thủy tinh mỏng manh. Nó chỉ làm mọi thứ vỡ nát nhanh hơn.
+*Xoạc!* Một nửa bức ảnh bị gió giật phăng đi, rách tơi tả. Tiếng cãi vã văng vẳng trong mưa càng lúc càng đinh tai nhức óc.
 
-*Rắc!* Một mảng lớn của quả cầu bong ra. Tiếng cãi vã bên trong càng lúc càng đinh tai nhức óc.
+*"Cậu đang dùng đôi tay rỉ máu để ôm một mảnh thủy tinh vỡ, Aki. Càng siết chặt, cát càng chảy nhanh qua kẽ tay."* 
 
-*"Càng siết chặt, cát càng chảy nhanh qua kẽ tay."* 
-
-Một giọng nói trầm mặc vang lên, dội vào bức tường đá. Sự căng cứng trong cơ bắp Aki bỗng chốc tan biến. Sự uy quyền, độc đoán bị dập tắt, nhường chỗ cho một ánh nhìn tĩnh lặng, thăm thẳm như đại dương. 
+Một giọng nói trầm mặc vang lên giữa cơn bão. Tiếng nức nở của Aki bỗng chốc nghẹn lại. Sự bất lực yếu đuối lắng xuống, nhường chỗ cho một ánh nhìn tĩnh lặng, thăm thẳm như đại dương. 
 
 Ichi đã đứng đó. 
 
-Ông lão trong hình hài cậu thiếu niên không hề chạy tới cứu quả cầu pha lê. Ichi đút hai tay vào túi quần, bình thản ngước nhìn trần nhà đang rụng lả tả những mảng vữa lớn. 
+Ông lão trong hình hài cậu thiếu niên bước ra giữa giông tố nhưng quần áo không hề ướt một giọt nước hay dính bùn đất. Ichi đút hai tay vào túi quần, bình thản ngước nhìn mái nhà lợp gỗ đang rung lên bần bật trong gió lốc. 
 
-"Làm cái quái gì vậy? Níu nó lại!" Giọng Aki vang lên the thé trong tiềm thức, đầy phẫn nộ và bất lực. "Nó sắp vỡ rồi kìa! Đồ vô dụng!"
+"Làm cái quái gì vậy? Níu nó lại!" Một giọng nói khác của Aki vang lên the thé trong tiềm thức, đầy phẫn nộ đòi lại quyền kiểm soát. "Nó sắp tan rồi kìa! Đồ vô dụng!"
 
-Ichi khẽ thở dài, lắc đầu. "Có những thứ vốn dĩ đã rạn nứt từ bên trong cốt lõi. Cháu dùng xích sắt để trói một luồng gió, chỉ làm tay mình trầy xước mà thôi."
+Ichi khẽ thở dài, lắc đầu. "Có những thứ vốn dĩ đã mục nát từ bên trong cốt lõi. Cháu dùng đôi tay trần cản lại một cơn bão, chỉ làm mình thêm tổn thương mà thôi."
 
-"Tôi không quan tâm! Nó phải nằm trong sự kiểm soát của tôi!" Aki gắt gỏng.
+"Tôi không quan tâm! Nó phải nằm trong vòng tay của tôi!" Aki gắt gỏng thét lên qua tiếng mưa.
 
-"Sự kiểm soát của cháu chính là thứ bóp nghẹt nó," Ichi điềm đạm đáp lại, không màng đến những viên đá tảng đang rơi sầm sập xung quanh. Cậu bước tới gần quả cầu pha lê đang phát ra những tia sáng chập chờn cuối cùng. Cậu không đưa tay ra níu giữ. Cậu chỉ đứng nhìn.
+"Sự cố chấp của cháu chính là thứ nhấn chìm nó," Ichi điềm đạm đáp lại, không màng đến những mảng gỗ lớn đang sập xuống xung quanh. Cậu bước tới gần vũng nước đang ánh lên những tia sáng vàng vọt cuối cùng. Cậu không đưa tay ra níu giữ. Cậu chỉ đứng nhìn.
 
-*Choang!*
+*Ầm!*
 
-Dưới lực kéo của hai bức tượng vô hình, quả cầu pha lê vỡ tan tành. Hàng vạn mảnh vỡ lấp lánh bắn tung tóe vào không trung. Khung cảnh ngôi nhà ấm áp bên trong tan biến thành những ảo ảnh nhạt nhòa. Cùng lúc đó, tòa lâu đài không còn điểm trụ, bắt đầu sụp đổ hoàn toàn. Cột đá gãy gập. Trần nhà sầm sập đổ xuống. Bóng tối bao trùm lấy Ichi. 
+Dưới sự vùi dập của cơn bão vô hình, bức ảnh rách nát bấy, vũng nước mưa cạn khô rồi bị gió quấn bay tung tóe vào không trung. Khung cảnh ngôi nhà ấm áp phản chiếu trên mặt nước tan biến thành những ảo ảnh nhạt nhòa. Cùng lúc đó, căn nhà gỗ không còn sức chống đỡ, bắt đầu sụp đổ hoàn toàn. Cột vách gãy gập. Mái hiên sầm sập đổ xuống. Bóng tối bao trùm lấy Ichi. 
 
-Trong tiềm thức, Aki gào lên thảm thiết. Đó là nỗi đau đớn tột cùng khi mất đi thứ duy nhất cậu muốn kiểm soát và bảo vệ. Mọi thứ đã chấm hết. Khối gạch khổng lồ sắp đè nát cả hai.
+Trong tiềm thức, Aki khóc nấc lên thảm thiết. Đó là nỗi đau đớn tột cùng khi mất đi thứ duy nhất cậu muốn níu giữ. Mọi thứ đã chấm hết. Những thanh gỗ mục khổng lồ sắp đè nát cả hai.
 
 Nhưng rồi...
 
 *La la la...*
 
-Một tiếng ngâm nga cất lên. Tiếng hát trong trẻo, mang theo giai điệu vui tươi của một cô gái trẻ. Nó xuyên qua cả tiếng đá lở, vỡ òa giữa không gian đặc quánh. 
+Một tiếng ngâm nga cất lên. Tiếng hát trong trẻo, mang theo giai điệu vui tươi của một cô gái trẻ. Nó xuyên qua cả tiếng sấm rền, vỡ òa giữa không gian vần vũ. 
 
-Ngay khi tiếng hát vang lên, thời gian dường như ngưng đọng. Khối gạch khổng lồ đang chực chờ nghiền nát Ichi bỗng dưng khựng lại giữa không trung. Rồi, trước ánh mắt kinh ngạc của cậu, những viên gạch thô ráp, những mảnh vỡ pha lê nhọn hoắt... tất cả đột ngột hóa thành những cánh hoa bồ công anh trắng muốt.
+Ngay khi tiếng hát vang lên, thời gian dường như ngưng đọng. Những thanh gỗ tơi tả đang chực chờ nghiền nát Ichi bỗng dưng khựng lại giữa không trung. Rồi, trước ánh mắt kinh ngạc của cậu, những mảnh gỗ xù xì, những mẩu giấy vụn nhòe nhoẹt của bức ảnh... tất cả đột ngột hóa thành những cánh hoa bồ công anh trắng muốt.
 
-Trần nhà tăm tối tan biến, để lộ ra một bầu trời đêm đầy sao lấp lánh. Hàng triệu cánh bồ công anh bay lơ lửng trong không gian, mang theo một làn gió mát rượi, xua tan đi hoàn toàn sự ngột ngạt và mùi ẩm mốc của tòa lâu đài cũ. 
+Mái nhà tăm tối tan biến, để lộ ra một bầu trời đêm đầy sao lấp lánh. Hàng triệu cánh bồ công anh bay lơ lửng trong không gian, mang theo một làn gió mát rượi, xua tan đi hoàn toàn sự lạnh lẽo và mùi mục nát của căn nhà cũ. 
 
-Sự bình yên phủ xuống dịu dàng như một cái ôm. Mọi tổn thương, mọi sự giằng xé giữa kiểm soát và buông bỏ đều tạm thời lắng xuống. 
+Sự bình yên phủ xuống dịu dàng như một cái ôm. Mọi tổn thương, mọi sự giằng xé giữa níu kéo và buông bỏ đều tạm thời lắng xuống. 
 
 Ichi vươn tay, để một cánh hoa bồ công anh đậu nhẹ lên lòng bàn tay. Khóe môi cậu khẽ cong lên một nụ cười hiền từ.
 
@@ -87,6 +85,6 @@ Ichi vươn tay, để một cánh hoa bồ công anh đậu nhẹ lên lòng b�
 
 Ánh sáng từ những vì sao rực lên, nuốt chửng lấy khung cảnh.
 
-Aki tỉnh giấc. Mặt trời đã lên cao, những tia nắng ấm áp nhảy múa qua khe rèm cửa. Cậu chớp mắt, cảm nhận một giọt nước mắt lạnh ngắt vương trên gò má. Quả cầu pha lê trong mơ đã vỡ. Tòa lâu đài đã sụp đổ. Quá khứ không thể níu kéo. Nhưng kỳ lạ thay, khi những cánh hoa bồ công anh bay lên, cậu nhận ra mình vẫn còn sống. 
+Aki tỉnh giấc. Mặt trời đã lên cao, những tia nắng ấm áp nhảy múa qua khe rèm cửa. Cậu chớp mắt, cảm nhận một giọt nước mắt lạnh ngắt vương trên gò má. Bức ảnh gia đình trong mơ đã rách nát. Căn nhà gỗ cheo leo đã sụp đổ. Quá khứ không thể níu kéo. Nhưng kỳ lạ thay, khi những cánh hoa bồ công anh bay lên, cậu nhận ra mình vẫn còn sống. 
 
 Và đôi khi, chấp nhận để mọi thứ vỡ nát, lại là cách duy nhất để bắt đầu tự do.

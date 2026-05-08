@@ -10,7 +10,7 @@ Aki trầm ngâm một lát. Cậu đưa mắt nhìn xuống toàn cảnh thị 
 
 Hana dừng bước. Nụ cười trên môi cô bé nhạt đi một chút, thay vào đó là ánh mắt thấu cảm. Cô bé biết Aki đã trải qua một thời gian rất dài chật vật với những vết thương giấu kín. 
 
-"Nhưng đó là chuyện của quá khứ rồi," Aki quay sang nhìn Hana, một nụ cười nhẹ nhàng nhưng vô cùng vững chãi hiện lên trên môi cậu. "Tớ từng nghĩ những giấc mơ là nơi để người ta chạy trốn khỏi thực tại tàn nhẫn. Nhưng tớ đã lầm. Giấc mơ không phải là hầm trú ẩn. Nó là một võ đài, nơi chúng ta rèn luyện sự dũng cảm để chuẩn bị cho ngày mai."
+"Nhưng đó là chuyện của quá khứ rồi," Aki quay sang nhìn Hana, một nụ cười nhẹ nhàng nhưng vô cùng vững chãi hiện lên trên môi cậu. "Tớ từng nghĩ những giấc mơ là nơi để người ta chạy trốn khỏi thực tại tàn nhẫn. Nhưng tớ đã lầm. Giấc mơ không phải là hầm trú ẩn. Nó là mảnh đất cằn cỗi nơi ta ươm mầm dũng khí để chuẩn bị cho ngày mai."
 
 "Vậy bây giờ cậu ước gì?" Hana hỏi lại, đôi mắt lại lấp lánh sự tò mò.
 

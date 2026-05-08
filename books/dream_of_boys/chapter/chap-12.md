@@ -32,11 +32,11 @@ Một giọng nói trầm mặc vang lên bên tai. Ichi không hiện hình, nh
 
 *"Và một chút màu sắc nữa nhé!"* Tiếng cười lanh lảnh của Sarah ngân vang, mang theo sự háo hức thuần khiết.
 
-Aki mỉm cười. Ba mảnh vỡ bên trong cậu đã tạo thành một hội đồng kiến trúc sư hoàn hảo. Cậu nhắm mắt lại, dang rộng hai tay.
+Aki mỉm cười. Ba mảnh vỡ bên trong cậu đã tụ họp lại như những người thợ xây của tâm hồn. Cậu nhắm mắt lại, dang rộng hai tay.
 
 "Tôi muốn một ngôi nhà," Aki cất lời. Giọng cậu vang vọng trong khoảng không gian vô tận.
 
-Ngay lập tức, ý chí kiên định và mạnh mẽ của bản ngã độc đoán tuôn trào qua những ngón tay cậu. Nó rắn rỏi như đá tảng. Dưới chân Aki, mặt đất bắt đầu hình thành. Những tảng đá cẩm thạch khổng lồ trồi lên từ hư không, ghép lại với nhau thành một nền móng vững chãi không thể lay chuyển. Cậu dùng sự kiểm soát tuyệt đối để dựng lên những bức tường gạch đỏ kiên cố, những cây cột gỗ lim to lớn cắm sâu vào lòng đất. Không một thế lực thù địch nào có thể phá vỡ được bức tường này, bởi nó được xây lên từ chính ý chí sinh tồn mạnh mẽ nhất của cậu.
+Ngay lập tức, ý chí kiên định và mạnh mẽ của kẻ từng mang vương miện gai tuôn trào qua những ngón tay cậu. Nó rắn rỏi như đá tảng. Dưới chân Aki, mặt đất bắt đầu hình thành. Những tảng đá cẩm thạch khổng lồ trồi lên từ hư không, ghép lại với nhau thành một nền móng vững chãi không thể lay chuyển. Cậu dùng khát khao bảo vệ tuyệt đối để dựng lên những bức tường gạch đỏ kiên cố, những cây cột gỗ lim to lớn cắm sâu vào lòng đất. Không một thế lực thù địch nào có thể phá vỡ được bức tường này, bởi nó được xây lên từ chính ý chí sinh tồn nguyên thủy nhất của cậu.
 
 "Tốt lắm," Aki lẩm bẩm. "Bây giờ, chúng ta cần một mái nhà."
 
@@ -46,7 +46,7 @@ Lần này, sự tĩnh lặng và phán đoán của Ichi dẫn lối. Cậu mư
 
 *"Để tớ!"* Giọng nói lanh lảnh của Sarah vang lên. 
 
-Từ trên trần nhà, ánh sáng bắt đầu tuôn rơi. Sự hy vọng và thuần khiết của bản ngã thứ ba hóa thành những ô cửa sổ kính màu rực rỡ, đón lấy ánh sáng của một bình minh vĩnh cửu. Lò sưởi bùng lên một ngọn lửa màu cam ấm áp. Những chậu dạ yến thảo mọc lên rực rỡ bên bệ cửa sổ, tỏa ra mùi hương oải hương dìu dịu. 
+Từ trên trần nhà, ánh sáng bắt đầu tuôn rơi. Sự hy vọng và thuần khiết của cô gái bé nhỏ hóa thành những ô cửa sổ kính màu rực rỡ, đón lấy ánh sáng của một bình minh vĩnh cửu. Lò sưởi bùng lên một ngọn lửa màu cam ấm áp. Những chậu dạ yến thảo mọc lên rực rỡ bên bệ cửa sổ, tỏa ra mùi hương oải hương dìu dịu. 
 
 Aki mở mắt ra. Khung cảnh trước mắt khiến cậu choáng ngợp. 
 
@@ -62,4 +62,4 @@ Khi tiếng chuông báo thức reo vang, Aki mở mắt.
 
 Trời vừa rạng sáng. Cậu không hề vã mồ hôi, cũng không hề cảm thấy mệt mỏi. Cậu thức dậy với một sự sảng khoái tột độ, như thể vừa trải qua một kỳ nghỉ dưỡng dài hạn. 
 
-Cậu nhìn vào trong gương. Khuôn mặt nhăn nhó, u uất thường ngày đã biến mất. Một cậu thiếu niên với ánh mắt sáng ngời và nụ cười mỉm đang nhìn lại cậu. Bức tường ngăn cách giữa các nhân cách đã mỏng manh đến mức gần như vô hình. Aki biết, khoảnh khắc dung hợp cuối cùng đang đến rất gần. Đã đến lúc để tất cả trở về làm một.
+Cậu nhìn vào trong gương. Khuôn mặt nhăn nhó, u uất thường ngày đã biến mất. Một cậu thiếu niên với ánh mắt sáng ngời và nụ cười mỉm đang nhìn lại cậu. Bức tường sương mù ngăn cách giữa những mảnh vỡ đã tan biến đến mức gần như vô hình. Aki biết, khoảnh khắc đoàn tụ cuối cùng đang đến rất gần. Đã đến lúc để tất cả trở về làm một.

@@ -28,7 +28,7 @@ Aki thấy mình đang đứng giữa một lễ hội mùa hè khác. Một l�
 
 Aki bước tới. Trái tim cậu đập những nhịp đập vững chãi, không hề có sự hoảng loạn.
 
-Người đầu tiên bước ra khỏi bóng tối là một chàng trai với ánh mắt từng vằn lên sự cay nghiệt, nhưng giờ đây lại tĩnh lặng đến lạ kỳ. Bản ngã độc đoán mỉm cười, một nụ cười hiếm hoi thay cho những cái cau mày. 
+Người đầu tiên bước ra khỏi bóng tối là một chàng trai với ánh mắt từng vằn lên sự cay nghiệt, nhưng giờ đây lại tĩnh lặng đến lạ kỳ. Kẻ mang vương miện gai mỉm cười, một nụ cười hiếm hoi thay cho những cái cau mày. 
 
 "Cậu không còn cần một con chó gác cổng hung dữ nữa," giọng nói từng luôn the thé ra lệnh giờ đây trầm ổn, vang lên nhẹ nhàng như gió thoảng. "Bức tường đã được gỡ bỏ. Cậu đã đủ sức mạnh để tự bảo vệ mình mà không cần phải làm tổn thương người khác. Ta không cần phải gầm thét nữa."
 
@@ -60,7 +60,7 @@ Dưới ánh sáng đó, cơ thể của kẻ độc đoán, của Ichi, và c�
 
 Ba luồng sáng xoay vòng quanh Aki, mang theo sự ấm áp tột cùng, rồi cùng lúc lao thẳng vào lồng ngực cậu.
 
-Aki ngửa mặt lên trời. Một luồng năng lượng khổng lồ tràn ngập khắp cơ thể. Cậu không bị xé rách. Cậu không bị chia năm xẻ bảy. Cậu cảm nhận được sự hòa quyện tuyệt đối. Sự mạnh mẽ giờ đây đã đi kèm với lòng bao dung. Sự tĩnh lặng giờ đây đã có thêm mục đích. Và hy vọng, từ nay về sau, sẽ là bánh lái dẫn đường cho cuộc đời cậu.
+Aki ngửa mặt lên trời. Một dòng suối ấm áp tan chảy vào từng mạch máu. Cậu không bị xé rách. Cậu không bị chia năm xẻ bảy. Cậu cảm nhận được sự hòa quyện tuyệt đối. Sự mạnh mẽ giờ đây đã đi kèm với lòng bao dung. Sự tĩnh lặng giờ đây đã có thêm mục đích. Và hy vọng, từ nay về sau, sẽ là ánh ban mai dẫn đường cho cuộc đời cậu.
 
 Quả pháo hoa trên bầu trời tan thành hàng triệu đốm sáng nhỏ li ti, rơi xuống như một cơn mưa sao băng tuyệt đẹp. Sự kiện "Mùa hè vĩnh biệt" từng ám ảnh cậu năm xưa đã được viết lại. Không có mất mát. Không có bi kịch. Chỉ có sự tái sinh rực rỡ của một linh hồn đã tìm lại được sự toàn vẹn.
 

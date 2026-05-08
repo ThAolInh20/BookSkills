@@ -32,7 +32,7 @@ Bà cụ ngước lên nhìn đứa cháu trai. Đôi bàn tay nhăn nheo của 
 
 Bà khẽ gật đầu, giọt nước mắt hạnh phúc lăn dài trên gò má đồi mồi. "Cháu đã cao lớn hơn nhiều rồi đấy, Aki. Cháu thực sự đã lớn rồi."
 
-Aki mỉm cười. Cậu cầm chiếc bay, cẩn thận xới từng nắm đất mùn tơi xốp quanh gốc hoa. Cậu làm việc không phải bằng sự vội vã hay ép buộc, mà bằng sự điềm đạm và kiên nhẫn. Sự thông thái và tĩnh lặng của nhân cách cũ giờ đây đã hòa quyện hoàn toàn vào thói quen hàng ngày của cậu.
+Aki mỉm cười. Cậu cầm chiếc bay, cẩn thận xới từng nắm đất mùn tơi xốp quanh gốc hoa. Cậu làm việc không phải bằng sự vội vã hay ép buộc, mà bằng sự điềm đạm và kiên nhẫn. Sự thông thái và tĩnh lặng của gốc gác xa xưa giờ đây đã hòa quyện hoàn toàn vào thói quen hàng ngày của cậu.
 
 ***
 
@@ -44,10 +44,10 @@ Aki đang đứng trên một con thuyền gỗ nhỏ, trôi lơ lửng giữa v
 
 Cậu không còn nghe thấy những tiếng cãi vã đinh tai nhức óc trong đầu. Không có ai đòi giật quyền kiểm soát, không có ai sợ hãi hay kêu gào. Chỉ có một sự tĩnh tại tuyệt đối. Cậu là Aki, trọn vẹn và duy nhất.
 
-Cậu đưa tay lên, vận dụng ý chí mạnh mẽ của mình. Không cần phải gầm thét, một cơn gió ấm áp lập tức nổi lên, thổi căng cánh buồm trắng của con thuyền gỗ. Cậu dùng sự điềm tĩnh và khả năng phân tích sắc bén để tính toán quỹ đạo của những vì sao, bẻ lái con thuyền đi qua những dải ngân hà lấp lánh mà không gặp bất kỳ trở ngại nào. Và trong lòng cậu, niềm hy vọng thuần khiết sáng rực như một ngọn hải đăng, vẽ ra vô vàn những màu sắc tuyệt mỹ lên khoảng không vô tận.
+Cậu chỉ cần buông lỏng đôi tay. Tâm trí thanh thản của cậu tựa như một lời mời gọi, kéo theo một luồng gió ấm áp khẽ nâng cánh buồm trắng. Không cần phải vất vả định hướng, sự điềm tĩnh dẫn dắt con thuyền gỗ nhẹ nhàng lướt qua những dải ngân hà lấp lánh mà không gặp bất kỳ trở ngại nào. Và trong lòng cậu, niềm hy vọng thuần khiết sáng rực như một ngọn hải đăng, vẽ ra vô vàn những màu sắc tuyệt mỹ lên khoảng không vô tận.
 
-Ba sức mạnh. Một ý chí. Một con người.
+Ba mảnh ghép. Một linh hồn. Một con người.
 
-Giấc mơ giờ đây đã trở thành một thế giới tự do, nơi Aki có thể thoải mái bay lượn và khám phá mà không sợ bị tổn thương. Sự kiện "dung hợp" đêm hôm trước đã thực sự phát huy tác dụng. Cậu đã tự chữa lành những vết thương bằng cách chấp nhận chúng, biến chúng thành một phần làm nên sự kiên cường của chính mình.
+Giấc mơ giờ đây đã trở thành một thế giới tự do, nơi Aki có thể thoải mái trôi lãng và khám phá mà không sợ bị tổn thương. Cuộc hội ngộ đêm hôm trước đã thực sự phát huy tác dụng. Cậu đã tự chữa lành những vết thương bằng cách chấp nhận chúng, biến chúng thành một phần làm nên sự kiên cường của chính mình.
 
 Con thuyền lướt đi êm ru trên biển sao. Aki ngả lưng xuống mạn thuyền, gối đầu lên hai tay, khẽ hát ngao ngao một giai điệu quen thuộc. Khúc hát của sự tự do. Cuộc chiến thực sự đã kết thúc. Và ngày mai, khi bình minh lên, cậu sẽ sẵn sàng đón nhận những chương mới của cuộc đời mình.

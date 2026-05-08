@@ -8,19 +8,19 @@ Cậu chống tay gượng dậy khỏi bãi cỏ xanh mướt. Bầu trời tr�
 
 Tiếng sấm rền rĩ nổ vang từ đằng xa. Không, đó không phải là tiếng sấm.
 
-Từ phía chân trời màu tím, những hình bóng khổng lồ bắt đầu di chuyển. Chúng không phải là những con sói sương mù hay những cái bóng khóc lóc trong mê cung nữa. Đó là những gã khổng lồ bằng đá tảng, cao lừng lững chạm tới những đám mây. Chúng di chuyển lờ đờ, vô hồn, nhưng mỗi bước chân nện xuống đều khiến mặt đất rung chuyển. Chúng là hiện thân của sự trầm cảm, của sức nặng tâm lý đang ngày ngày đè nén cậu.
+Từ phía chân trời màu tím, những hình bóng khổng lồ bắt đầu di chuyển. Chúng không phải là những con sói sương mù hay những cái bóng khóc lóc trong mê cung nữa. Đó là những gã khổng lồ bằng đá tảng, cao lừng lững chạm tới những đám mây. Chúng di chuyển lờ đờ, vô hồn, nhưng mỗi bước chân nện xuống đều khiến mặt đất rung chuyển. Chúng là hiện thân của những u uất, của tầng mây xám xịt đang ngày ngày đè nén cậu.
 
 Và chúng đang tiến về phía cậu.
 
-*"Đứng lên! Chúng ta không thể chết ở đây!"* 
+*"Đứng lên! Chúng ta không thể tàn lụi ở đây!"* 
 
-Giọng nói the thé của bản ngã độc đoán vang lên trong đầu Aki. Sự hung hãn bùng nổ, cố gắng ép đôi chân cậu đứng thẳng. Nhưng trọng lực vô hình của tầng mộng sâu đã đè bẹp sự hung hăng ấy. Aki lảo đảo, ngã khuỵu xuống nền cỏ.
+Tiếng gầm gừ quen thuộc vang lên trong đầu Aki. Sự cay nghiệt bùng nổ, cố gắng ép đôi chân cậu đứng thẳng. Nhưng trọng lực vô hình của đáy vực mộng mị đã đè bẹp sự kháng cự ấy. Aki lảo đảo, ngã khuỵu xuống nền cỏ.
 
 "Nặng quá... Tôi không nhấc chân lên nổi," Aki nghiến răng, mồ hôi vã ra như tắm.
 
 *"Càng vùng vẫy bằng bạo lực, vũng lầy sẽ càng nuốt chửng cháu."* Giọng nói trầm mặc của ông lão cất lên. Ichi luôn giữ được sự bình thản, ngay cả khi những gã khổng lồ bằng đá đang từ từ khép chặt vòng vây. *"Trọng lực ở đây không sinh ra từ lõi Trái Đất. Nó sinh ra từ chính nỗi sợ hãi trong tâm trí cháu."*
 
-"Vậy thì làm thế nào?! Chẳng lẽ cứ ngồi chờ chết?!" Bản ngã độc đoán gào lên đầy phẫn nộ.
+"Nếu buông tay, chẳng phải tất cả sẽ vỡ vụn sao?!" Tiếng nói cay nghiệt gào lên đầy phẫn nộ.
 
 Aki ôm lấy đầu. Một bên là ngọn lửa giận dữ muốn thiêu rụi tất cả. Một bên là mặt hồ tĩnh lặng, yêu cầu cậu buông bỏ sự chống cự. Trong suốt bao nhiêu năm qua, hai nửa này luôn loại trừ nhau. Khi cái này trỗi dậy, cái kia sẽ bị giam cầm. Sự bất hòa đó chính là nguyên nhân khiến cậu trượt dài từ ác mộng này sang ác mộng khác.
 
@@ -36,25 +36,23 @@ Lần đầu tiên trong đời, Aki nhận ra một sự thật muộn màng. C
 
 Cậu nhắm mắt lại. Không còn sự chống cự. Không còn sự chia rẽ. 
 
-"Cho tôi mượn sự điềm tĩnh của ông," Aki lẩm bẩm trong miệng. Ngay lập tức, nhịp tim đang đập liên hồi của cậu dịu lại. Hơi thở trở nên đều đặn. Cậu cảm nhận được nhịp chân của những gã khổng lồ đá. Cậu nhìn thấu được quy luật di chuyển của chúng.
+Aki thở ra một luồng khí lạnh. Ngay lập tức, nhịp tim đang đập liên hồi của cậu dịu lại. Hơi thở trở nên đều đặn. Sự điềm tĩnh từ nơi sâu thẳm lan tỏa như một làn sương mù mỏng, giúp cậu nhìn thấu được vẻ chậm chạp nặng nề của những bóng ma đá tảng.
 
-"Cho tôi mượn sức mạnh và ý chí của ngươi," cậu nói tiếp, hướng về phía bản ngã độc đoán. Một luồng nhiệt nóng bỏng chạy dọc từ sống lưng xuống đôi chân. Cơ bắp cậu căng phồng. Sự kiên quyết không lùi bước biến thành một động cơ phản lực vô hình.
+Một luồng nhiệt nóng bỏng chạy dọc từ sống lưng xuống đôi chân. Đó là ý chí sinh tồn không bao giờ chịu khuất phục của kẻ mang vương miện gai. Nhưng lần này, nó không bùng lên thành ngọn lửa giận dữ, mà cô đặc lại thành từng bước chân kiên định.
 
-"Và Sarah..." Cậu mỉm cười, hướng về phía cô gái váy vàng. "Hãy giữ cho hy vọng của chúng ta không bị tắt."
+"Và Sarah..." Cậu mỉm cười, hướng về phía cô gái váy vàng. "Cảm ơn vì đã luôn ở lại."
 
-Ánh sáng vàng rực rỡ bao bọc lấy cơ thể Aki. Trọng lực đè nén trên vai cậu bỗng chốc nhẹ bẫng đi một nửa. 
+Ánh sáng vàng rực rỡ từ đôi bàn tay nhỏ bé lan tỏa, bao bọc lấy cơ thể Aki. Trọng lực đè nén trên vai cậu tan biến như bọt biển. 
 
-Aki mở bừng mắt. Cậu chống tay, bật đứng dậy. Đôi chân cậu không còn run rẩy nữa. Sự sợ hãi đã bị triệt tiêu bởi sự điềm tĩnh. Sự yếu đuối đã bị thay thế bởi ý chí thống trị. Và phương hướng đã được soi sáng bởi hy vọng.
+Aki mở bừng mắt. Cậu không chạy. Cậu từ tốn bước đi. Đôi chân cậu không còn run rẩy nữa. Sự sợ hãi đã tan biến vào thinh không. Cậu bước thẳng về phía trước, một bước, rồi hai bước, ung dung và tĩnh tại. 
 
-Cậu chạy. 
+Một gã khổng lồ đá nhấc bàn chân to bằng cả một căn nhà, giáng thẳng xuống vị trí của cậu. Nhưng Aki không lùi bước, cũng không né tránh. Ngay khi cái bóng khổng lồ đổ ụp xuống, vầng sáng màu vàng bao quanh Aki bỗng lan rộng như những gợn sóng trên mặt hồ. Ánh sáng chạm vào lớp đá cứng nhắc. Không có tiếng nổ lớn, chỉ có âm thanh rạn nứt êm ái vang lên. Bàn chân khổng lồ vừa chạm vào vòng sáng tĩnh lặng lập tức vỡ vụn thành hàng vạn hạt cát mịn, lướt qua vai cậu như một cơn gió nhẹ.
 
-Aki lao về phía trước như một mũi tên. Một gã khổng lồ đá nhấc bàn chân to bằng cả một căn nhà, giáng thẳng xuống vị trí của cậu. Nhưng nhờ sự tĩnh lặng của Ichi, Aki đã đoán trước được quỹ đạo. Cậu lách người sang trái, trượt qua kẽ hở giữa hai ngón chân bằng đá khổng lồ chỉ trong gang tấc. Gió rít gào, bụi mù mịt, nhưng ánh sáng vàng bảo vệ cậu khỏi mọi sự sụp đổ.
-
-Cậu không hề đơn độc. Trong lúc chạy, cậu nghe thấy tiếng gầm thét đầy uy quyền của bản ngã thứ nhất, tiếng đếm nhịp điềm đạm của Ichi, và tiếng cười trong vắt của Sarah. Tất cả hòa quyện thành một bản giao hưởng hoàn hảo của sự sống.
+Cậu không hề đơn độc. Trong từng bước chân, cậu cảm nhận được sự vững chãi của ý chí sinh tồn, sự trầm tĩnh của trí tuệ, và sự thuần khiết rực rỡ của niềm hy vọng. Tất cả hòa quyện thành một bản giao hưởng êm đềm của sự sống.
 
 Hồ nước màu lam ngọc hiện ra ngay trước mắt. 
 
-Một gã khổng lồ khác vung cánh tay đá vĩ đại quét ngang mặt đất, định chặn đường cậu. Nhưng với sức bật của sự kiên quyết, Aki đạp chân xuống đất, tung người bay lên không trung. Cậu vượt qua cánh tay đá, lao thẳng vào giữa mặt hồ phát sáng.
+Một gã khổng lồ khác vung cánh tay đá vĩ đại quét ngang mặt đất, định chặn đường cậu. Aki chỉ khẽ chớp mắt. Ánh sáng lan tỏa mạnh mẽ hơn. Cánh tay đá vỡ tan thành cát bụi trước khi kịp chạm vào cậu. Aki mỉm cười, bình thản thả mình chìm vào giữa mặt hồ phát sáng.
 
 *Ùm!*
 
@@ -64,6 +62,6 @@ Cậu mở mắt. Lần này, không còn sương mù, không còn hành lang v�
 
 Aki đang nằm trên sàn nhà gỗ trong căn phòng của mình. Nắng trưa gay gắt chiếu qua khe cửa sổ. Tiếng chim hót ríu rít ngoài vườn. 
 
-Cậu chống tay ngồi dậy, đầu tóc ướt đẫm mồ hôi. Lồng ngực cậu phập phồng, nhưng không phải vì sợ hãi. Đó là nhịp đập của sự tự do. Cậu nhìn vào trong tâm trí mình. Cả ba bản ngã đều đang im lặng. Không còn ai gầm gừ muốn chiếm quyền điều khiển. Một sự tĩnh tại tuyệt đối đã được thiết lập. 
+Cậu chống tay ngồi dậy, đầu tóc ướt đẫm mồ hôi. Lồng ngực cậu phập phồng, nhưng không phải vì sợ hãi. Đó là nhịp đập của sự tự do. Cậu nhìn vào trong tâm trí mình. Những âm thanh hỗn loạn đã chìm vào tĩnh lặng. Không còn ai gầm gừ giằng xé. Một sự yên bình tuyệt đối đã được thiết lập. 
 
-Aki biết, cậu vừa trải qua một cột mốc lịch sử bên trong chính mình. Lạc lối đã kết thúc. Giờ là lúc để đối mặt với thực tại và chuẩn bị cho một sự dung hợp vĩnh viễn.
+Aki biết, cậu vừa trải qua một cột mốc trong hành trình tìm lại chính mình. Bóng đêm đã qua. Giờ là lúc để đối mặt với thực tại, để những mảnh vỡ tự nhiên hòa lại làm một.

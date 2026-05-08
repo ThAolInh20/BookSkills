@@ -4,13 +4,13 @@ Gió rít gào bên tai như tiếng khóc than của hàng vạn linh hồn b�
 
 Aki vung vẩy hai tay trong không trung, cố gắng chộp lấy bất cứ thứ gì có thể cản lại đà rơi của mình. Nhưng vô ích. Không có vách đá, không có cành cây, không có điểm tựa. Chỉ có một bóng tối đặc quánh, lạnh lẽo, và vô tận. 
 
-"Này! Ai đó giúp tôi với! Có ai ở đó không?!" Cậu gào lên đến lạc cả giọng. 
+*Làm ơn... Có ai ở đó không?* Tiếng gọi của cậu bị nuốt chửng hoàn toàn, không thể bật ra thành lời. 
 
 Đáp lại cậu chỉ là âm thanh tĩnh mịch rợn người của không gian không đáy. Cậu cố gắng gọi tên những bản ngã khác bên trong mình. 
 
-"Ra đây đi! Tôi biết các người đang trốn ở đâu đó! Kéo tôi lên!" Aki gọi gã độc đoán hung hãn. Không có tiếng chửi thề hay ra lệnh nào vang lên. Cái tôi cai trị đã sập cửa đóng kín, từ chối giúp đỡ sau khi bị tước đoạt quyền lực.
+Cậu cố gắng gọi những phần khác bên trong mình. Cậu cầu xin sự mạnh mẽ của kẻ cầm quyền tàn nhẫn, nhưng không có tiếng gầm gừ nào vang lên. Bức tường kiên cố đã sập cửa đóng kín.
 
-"Ông già! Làm ơn nói gì đó đi! Tôi phải làm sao đây?!" Cậu tuyệt vọng gọi nhân cách tĩnh lặng. Nhưng Ichi đã bị trói chặt từ trước, tiếng nói uyên thâm của ông đã chìm nghỉm dưới tầng tầng lớp lớp của bóng tối tăm tối.
+Cậu tuyệt vọng bấu víu vào sự điềm đạm của cái bóng cổ kính. Nhưng Ichi đã bị trói chặt từ trước, tiếng nói uyên thâm của ông đã chìm nghỉm dưới tầng tầng lớp lớp của bóng tối tăm tối.
 
 Aki hoàn toàn cô độc.
 
@@ -36,7 +36,7 @@ Chưa kịp hiểu chuyện gì đang xảy ra, vô số sợi chỉ vàng khác
 
 Giọng nói lanh lảnh, trong vắt như tiếng chuông bạc vang lên ngay bên tai. 
 
-Aki ngẩng đầu lên. Cô bé mặc váy vàng đang bay lơ lửng ngay phía trên cậu. Những sợi chỉ vàng rực rỡ kia bắt nguồn từ đôi bàn tay nhỏ nhắn của cô. Khuôn mặt cô bé vẫn chìm trong ánh sáng lấp lánh, không rõ hình hài, nhưng mái tóc ngắn bay phấp phới và nụ cười ấm áp thì hiện lên rõ rệt. Bản ngã thuần khiết đã không bị bóng tối nuốt chửng. Cô đã chọn cách nhảy xuống vực thẳm cùng cậu.
+Aki ngẩng đầu lên. Cô bé mặc váy vàng đang bay lơ lửng ngay phía trên cậu. Những sợi chỉ vàng rực rỡ kia bắt nguồn từ đôi bàn tay nhỏ nhắn của cô. Khuôn mặt cô bé vẫn chìm trong ánh sáng lấp lánh, không rõ hình hài, nhưng mái tóc ngắn bay phấp phới và nụ cười ấm áp thì hiện lên rõ rệt. Hình bóng của sự thuần khiết đã không bị bóng tối nuốt chửng. Cô đã chọn cách nhảy xuống vực thẳm cùng cậu.
 
 "Cậu... sao cậu lại ở đây?" Aki run rẩy hỏi, giọng nói nghẹn lại vì xúc động. "Cậu nhỏ bé thế này, làm sao giữ được tôi? Chúng ta sẽ cùng rơi mất!"
 
@@ -56,7 +56,7 @@ Aki cảm thấy mình đang được bao bọc trong một chiếc kén ấm á
 
 Aki từ từ mở mắt. Khắp người cậu mướt mát mồ hôi, nhưng lồng ngực lại căng tràn dưỡng khí. Cậu đang nằm trên chiếc nệm quen thuộc. Đồng hồ báo thức đầu giường vừa reo lên những tiếng *bíp bíp* giòn giã. 
 
-Cậu đưa bàn tay phải lên nhìn. Vệt hằn đỏ từ những sợi dây cước của bản ngã độc đoán hôm qua dường như đã mờ đi, thay vào đó, cậu lại cảm thấy cổ tay mình vương vấn một mùi hương oải hương thoang thoảng. 
+Cậu đưa bàn tay phải lên nhìn. Vệt hằn đỏ từ những sợi dây cước tàn nhẫn hôm qua dường như đã mờ đi, thay vào đó, cậu lại cảm thấy cổ tay mình vương vấn một mùi hương oải hương thoang thoảng. 
 
 Cậu đã không rơi mãi mãi. Cậu đã được cứu. Không phải bằng bạo lực. Không phải bằng sự triết lý khô khan. Mà bằng sự dịu dàng và hy vọng từ chính mảnh vỡ mong manh nhất trong tâm hồn mình.
 

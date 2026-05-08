@@ -4,9 +4,9 @@ Cơn mưa rào ập đến vào cuối giờ chiều, gõ những nhịp điệu
 
 Aki ngồi gập gối bên bậu cửa sổ, đưa tay hứng những giọt nước mưa mát lạnh. Trong nhà, bà đang đun ấm nước chè xanh, mùi hương thanh mát thoang thoảng bay ra. Một ngày trôi qua thật bình yên. Nhưng điều khiến Aki cảm thấy nhẹ nhõm nhất không phải là thời tiết, mà là bầu không khí bên trong tâm trí cậu.
 
-Lần đầu tiên kể từ khi những cơn ác mộng bắt đầu, cậu không còn cảm thấy sự giằng xé điên cuồng vắt kiệt sức lực. Sự kiện đêm qua trong khu rừng sương mù đã để lại một bài học đắt giá. Sự độc đoán và hung hãn của bản ngã thứ nhất đã phải nhượng bộ trước sự điềm đạm, uyên thâm của bản ngã thứ hai. 
+Lần đầu tiên kể từ khi những cơn ác mộng bắt đầu, cậu không còn cảm thấy sự giằng xé điên cuồng vắt kiệt sức lực. Sự kiện đêm qua trong khu rừng sương mù đã để lại một bài học đắt giá. Sự gai góc và hung hãn của kẻ đội vương miện gai đã phải nhượng bộ trước sự điềm đạm, uyên thâm của cái bóng tĩnh lặng.
 
-*"Cậu đang nghĩ gì vậy?"* Một giọng nói đanh thép, mang đầy tính uy quyền vang lên trong đầu Aki. Đó là nhân cách thứ nhất - kẻ luôn muốn kiểm soát mọi thứ.
+*"Cậu đang nghĩ gì vậy?"* Một giọng nói đanh thép, mang đầy tính uy quyền vang lên trong đầu Aki. Đó là kẻ cai trị tàn nhẫn bên trong cậu - kẻ luôn muốn bóp nghẹt mọi thứ bằng luật lệ.
 
 Aki khẽ nhếch mép, không nói thành lời mà chỉ đáp lại bằng ý nghĩ. *"Tôi đang nghĩ... có lẽ chúng ta không cần phải lúc nào cũng vung gươm chém giết. Hôm qua, nếu không có ông lão ấy, chúng ta đã bị bầy sói xé xác rồi."*
 
@@ -28,15 +28,15 @@ Từ dưới mặt biển cuộn sóng, những bóng đen nhớp nháp bắt đ
 
 *"Trèo mau lên! Đứng ngây ra đó làm gì?!"*
 
-Giọng nói cay nghiệt lập tức cất lên. Sự độc đoán và hung hãn giật lấy buồng lái tâm trí. Đôi mắt Aki trợn ngược, hằn lên những tia vằn đỏ. Cậu nắm chặt bó đuốc, dồn toàn bộ sức lực lao lên những bậc thang.
+Giọng nói cay nghiệt lập tức cất lên. Sự gai góc và hung hãn cướp lấy ánh nhìn. Đôi mắt Aki trợn ngược, hằn lên những tia vằn đỏ. Cậu nắm chặt bó đuốc, dồn toàn bộ sức lực lao lên những bậc thang.
 
-"Lũ cặn bã! Tránh đường cho ta!" Cậu gào thét, vung bó đuốc châm lửa vào những xúc tu đen ngòm đang vươn tới cổ chân mình.
+"Tan đi! Đừng ngáng đường ánh sáng!" Cậu gào thét, vung ngọn lửa phập phù múa những đường tuyệt vọng vào khoảng không đen ngòm đang vươn tới cổ chân mình.
 
-Lửa táp vào bóng tối, phát ra những tiếng xèo xèo ghê rợn. Nhưng giống hệt như bầy sói trong sương mù đêm qua, ngọn lửa của sự tức giận chỉ làm những chiếc xúc tu điên tiết hơn. Một cái xúc tu khổng lồ quật thẳng vào vách đá ngay trước mặt Aki, làm vỡ nát ba bậc thang liên tiếp.
+Ngọn lửa chới với giữa giông bão, giống hệt như bầy sói trong sương mù đêm qua, ngọn lửa của sự tức giận chỉ làm những chiếc xúc tu điên tiết hơn. Một cái xúc tu khổng lồ quật thẳng vào vách đá ngay trước mặt Aki, làm vỡ nát ba bậc thang liên tiếp.
 
 Cậu loạng choạng, trượt chân. Nửa thân người lơ lửng trên không trung. Móng tay cậu cấu chặt vào rìa đá sắc lẹm đến ứa máu. Bên dưới là vòng xoáy đen ngòm đang há miệng chờ đợi.
 
-"Chết tiệt! Chết tiệt!" Aki gầm gừ, đôi mắt vằn lên sự bất lực. "Tại sao không thể kiểm soát được chúng?! Tại sao mọi thứ cứ sụp đổ?!"
+"Tại sao biển cả cứ muốn nuốt chửng ta?!" Aki gầm gừ, đôi mắt vằn lên sự bất lực. "Tại sao không thể kiểm soát được chúng?! Tại sao mọi thứ cứ sụp đổ?!"
 
 Cậu cố gắng kéo người lên, nhưng mảng đá đang nứt dần. Cậu sắp rơi.
 
@@ -46,11 +46,11 @@ Cậu cố gắng kéo người lên, nhưng mảng đá đang nứt dần. Cậ
 
 Giọng nói trầm mặc, dạn dĩ của ông lão cất lên. 
 
-"Ông lại định làm gì? Thuyết giáo à? Kéo tôi lên trước khi tôi chết!" Bản ngã hung hãn của Aki quát tháo.
+"Ông định đứng nhìn bóng tối nuốt chửng chúng ta sao?!" Kẻ đội vương miện gai trong Aki quát tháo.
 
 *"Ta không thể kéo cậu lên,"* Ichi bình thản đáp lời. *"Vì cơ thể này là của cậu. Nhưng... hãy cho ta mượn đôi mắt."*
 
-Aki sững lại. Cậu không chống cự nữa. Cậu nhắm mắt lại một giây. Khi mở ra, ánh nhìn cay độc đã biến mất, nhường chỗ cho sự pha trộn kỳ lạ: Vẫn là khao khát sinh tồn mãnh liệt, nhưng lại được bọc trong một sự tĩnh lặng đến rợn người. Lần này, Ichi không cướp quyền kiểm soát. Hai nhân cách đang chia sẻ chung một buồng lái.
+Aki sững lại. Cậu không chống cự nữa. Cậu nhắm mắt lại một giây. Khi mở ra, ánh nhìn cay độc đã biến mất, nhường chỗ cho sự pha trộn kỳ lạ: Vẫn là khao khát sinh tồn mãnh liệt, nhưng lại được bọc trong một sự tĩnh lặng đến rợn người. Lần này, sự tĩnh lặng len lỏi vào từng kẽ nứt của sự hung hãn. Hai mảnh vỡ đang chia sẻ chung một cơ thể.
 
 "Nhìn đi," Ichi cất giọng, trầm ấm và đều đặn. "Đừng nhìn vào những chiếc xúc tu. Nhìn vào nhịp điệu của chúng."
 
@@ -60,7 +60,7 @@ Aki hít một hơi thật sâu. Sự hoảng loạn vơi đi, cậu bắt đầ
 
 Aki gồng mình, đạp chân vào vách đá, lách qua mảng vỡ đúng lúc chiếc xúc tu vừa trượt xuống. Cậu nhảy lên bậc thang an toàn tiếp theo. Không còn la hét, không còn chửi bới, cũng không dùng ngọn đuốc để tấn công. Cậu di chuyển như một bóng ma, nương theo nhịp đập của chính những thứ đang cố dìm cậu xuống.
 
-*"Chúng ta đang làm được!"* Nhân cách hung hãn thốt lên, có chút kinh ngạc.
+*"Chúng ta đang làm được!"* Kẻ gai góc thốt lên, có chút kinh ngạc.
 
 Cứ như vậy, bằng sự phối hợp giữa sức mạnh thể chất của Aki và sự phán đoán sắc lạnh của Ichi, lữ khách leo dần lên đỉnh tháp. Nhưng cánh cửa thép dẫn vào buồng đèn đã bị một ổ khóa khổng lồ chặn lại. Bó đuốc trên tay đang cháy tàn. Xúc tu từ dưới biển bắt đầu quấn quanh thân tháp, rung bần bật. 
 

@@ -40,9 +40,9 @@ Cái bóng trên ghế từ từ quay đầu lại. Khuôn mặt bà trống r�
 
 Trái tim Aki đập thót lên tận cổ họng. Cậu đóng sầm cánh cửa lại, lùi ra xa, lưng tựa mạnh vào bức tường đối diện. 
 
-*"Cái quái gì thế này?!"* 
+Aki lùi lại vài bước, tiếng thở nghẹn lại trong lồng ngực. Cảm giác ngột ngạt quen thuộc ùa tới.
 
-Giọng nói cay nghiệt vang lên, nhưng lần này không chứa đựng sự uy quyền thường thấy, mà nhuốm màu hoảng loạn. Bản ngã độc đoán, kẻ luôn muốn bóp nát mọi thứ bằng bạo lực, đang run rẩy. *"Đập nát chúng đi! Phá sập bức tường này!"*
+*"Đừng để chúng nhốt chúng ta lại! Phá vỡ tất cả đi!"* Tiếng gầm gừ cay nghiệt vang lên trong đầu, xúi giục cậu dùng bạo lực để thoát khỏi sự bao vây. 
 
 Aki gồng mình, vung chân đạp mạnh vào một cánh cửa khác. Cánh cửa bung ra. Lần này, bên trong là hàng chục cái bóng mang hình hài của Hana, nhưng tất cả đều đang khóc lóc thảm thiết, rỉ máu từ hốc mắt. Những cái bóng vươn tay ra, lao về phía cửa.
 
@@ -60,7 +60,7 @@ Ichi đặt tay lên vai Aki. Sự điềm tĩnh lan tỏa, giúp cơ bắp cậ
 
 Lần đầu tiên, một thỏa hiệp được lập ra. 
 
-Bản ngã độc đoán không còn chống cự Ichi. Nó dồn toàn bộ sự phẫn nộ và sức mạnh thể chất của mình để giữ chặt cánh cửa đang chực chờ bung ra, làm bức tường khiên vững chãi nhất. Trong khi đó, sự uyên bác của Ichi dẫn lối cho ý thức của Aki. 
+Tiếng gầm gừ im bặt. Kẻ cai trị tàn nhẫn ấy, cuối cùng cũng nhận ra rằng trong tầng sâu thẳm này của vực mộng, sức mạnh vật lý chỉ là một ảo ảnh yếu ớt. Chỉ có sự tinh tế của các giác quan và sự trầm tĩnh mới là chìa khóa để thoát khỏi mê cung. Hắn dồn toàn bộ sự phẫn nộ và sức mạnh thể chất của mình để giữ chặt cánh cửa đang chực chờ bung ra, làm bức tường khiên vững chãi nhất. Trong khi đó, sự uyên bác của Ichi dẫn lối cho ý thức của Aki. 
 
 Aki nhìn dọc theo dãy hành lang. Hàng vạn cánh cửa gỗ. Tất cả đều giống hệt nhau. Nhưng khi tâm trí đạt đến độ tĩnh lặng tuyệt đối, những tiểu tiết bắt đầu lộ diện. Cánh cửa số 4 bị mối mọt ăn. Cánh cửa số 7 tỏa ra mùi tanh của máu. Cánh cửa số 12...
 

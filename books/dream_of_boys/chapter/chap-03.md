@@ -10,7 +10,7 @@ Aki giật mình, vội rụt tay về. "Dạ không có gì ạ. Cháu... cháu
 
 Bà mỉm cười hiền từ, nụ cười làm in hằn thêm những nếp nhăn nơi đuôi mắt. "Khi mắt không nhìn thấy đường, thì người ta phải dùng tai để nghe, dùng tim để cảm nhận. Càng hoảng loạn vùng vẫy, sương sẽ càng làm cháu mù quáng thôi."
 
-Câu nói của bà cứ văng vẳng trong đầu Aki suốt cả ngày hôm đó. Nó giống hệt như triết lý tĩnh lặng của cái bóng già cỗi kia—nhân cách Ichi. Đêm đó, khi Aki cuộn mình trong chiếc chăn ấm, cậu đã tự hứa với bản thân: *Mình phải học cách điềm tĩnh.*
+Câu nói của bà cứ văng vẳng trong đầu Aki suốt cả ngày hôm đó. Nó giống hệt như triết lý tĩnh lặng của cái bóng già cỗi kia—phiên bản tĩnh lặng Ichi. Đêm đó, khi Aki cuộn mình trong chiếc chăn ấm, cậu đã tự hứa với bản thân: *Mình phải học cách điềm tĩnh.*
 
 Nhưng nói luôn dễ hơn làm. Nhất là trong thế giới của những giấc mơ.
 
@@ -24,13 +24,13 @@ Sương mù ở đây không giống như ở nhà. Nó mang một màu xanh l�
 
 Từ trong lớp sương đặc quánh, những tiếng gầm gừ trầm đục bắt đầu vang lên. Không phải một, mà là hàng chục tiếng gầm dội lại từ mọi hướng. Những cặp mắt đỏ ngòm như những hòn than rực lửa từ từ hiện ra. Đó là những con quái thú hình sói, to lớn như những con gấu gầy gò, đang nhỏ dãi tiến lại gần. 
 
-Sự hoảng sợ trào dâng. Cơ chế phòng vệ trong tâm trí Aki tự động kích hoạt. Ánh mắt lữ khách đột ngột sắc lên. Nhân cách hung hãn, độc đoán lập tức giật lấy quyền điều khiển.
+Sự hoảng sợ trào dâng. Một bức tường gai góc đột ngột mọc lên, bủa vây lấy trái tim cậu. Ánh mắt lữ khách đột ngột sắc lên. Kẻ độc đoán trong cậu gạt phăng mọi sợ hãi, cướp lấy ánh nhìn.
 
-"Lũ súc sinh! Tránh xa ta ra!" Aki gầm lên. 
+"Biến đi! Trả lại sự yên tĩnh cho ta!" Aki gầm lên, giọng nói vỡ nát trong sương.
 
-Cậu vứt phăng chiếc đèn bão xuống đất, rút thanh gươm mẻ sứt giắt bên hông ra. Cậu không đợi chúng tấn công mà chủ động lao về phía trước. Cậu chém loạn xạ vào lớp sương mù. Lưỡi gươm xé gió, phập một tiếng rõ to vào vai một con quái thú. Nó rống lên đau đớn rồi tan thành làn khói lục. 
+Cậu vứt phăng chiếc đèn bão xuống đất, rút thanh gươm mẻ sứt giắt bên hông ra. Cậu không đợi chúng tấn công mà chủ động lao về phía trước, vung gươm chém loạn xạ vào lớp sương mù. Những nhát chém tuyệt vọng xé nát lớp sương đặc quánh, trúng vào một bóng ma hình sói khiến nó rống lên đau đớn và vỡ tan thành làn khói lục. 
 
-"Thấy chưa? Ta không sợ các người! Bước ra đây!" Aki gào thét, ánh mắt điên cuồng tìm kiếm mục tiêu tiếp theo. Cậu xoay người, vung gươm chém đứt đôi một con khác đang lao tới từ phía sau.
+"Thấy chưa? Ta không sợ các người! Bước ra đây!" Aki gào thét, ánh mắt điên cuồng tìm kiếm mục tiêu tiếp theo. Cậu xoay người, vung lưỡi gươm chém xuyên qua một cái bóng khác đang lao tới từ phía sau.
 
 Nhưng cậu đã lầm. 
 
@@ -40,13 +40,13 @@ Vòng vây siết chặt. Không khí ngột ngạt đến mức nghẹt thở.
 
 Aki vung gươm cho đến khi cánh tay rã rời. Lưỡi gươm đã cùn đi, những vết thương do móng vuốt cào xé bắt đầu rướm máu trên cánh tay và bả vai cậu. Sự tức giận giờ đây đã nhường chỗ cho nỗi tuyệt vọng. Cậu càng cố giết chúng, chúng càng trở nên đông đảo và hung tợn hơn.
 
-*"Đồ ngốc. Cậu định chiến đấu đến khi kiệt sức sao?"* Một tiếng thở dài vang lên trong đầu cậu. Giọng nói quen thuộc của nhân cách tĩnh lặng - Ichi.
+*"Đồ ngốc. Cậu định chiến đấu đến khi kiệt sức sao?"* Một tiếng thở dài vang lên trong đầu cậu. Giọng nói quen thuộc của cái bóng tĩnh lặng - Ichi.
 
-"Vậy ông bảo tôi phải làm gì? Đứng yên cho chúng xé xác à?!" Aki gắt lại, vừa thở dốc vừa vung gươm đẩy lùi một cái mõm đầy răng nhọn.
+"Vậy tôi phải làm gì? Đứng nhìn chúng nuốt chửng linh hồn mình sao?!" Aki gắt lại, vừa thở dốc vừa vung gươm đẩy lùi một cái mõm đầy răng nhọn.
 
 *"Nhắm mắt lại. Lắng nghe đi."* Ichi điềm đạm đáp. *"Nhớ lại lời bà nói đi. Càng hoảng loạn vùng vẫy, sương sẽ càng làm cháu mù quáng. Hạ vũ khí xuống."*
 
-"Không thể nào! Hạ vũ khí xuống là chết!" Aki nghiến răng, sự kiểm soát độc đoán khiến cậu không cam tâm buông bỏ sự phòng vệ.
+"Không thể nào! Hạ vũ khí xuống là chết!" Aki nghiến răng, sự ngạo mạn và nỗi sợ hãi che mờ lý trí khiến cậu không cam tâm buông bỏ sự phòng vệ.
 
 *"Chúng không có thực, cậu bé. Chúng chỉ là nỗi sợ hãi đang ăn mòn sự tự tin của cậu mà thôi."*
 
@@ -62,7 +62,7 @@ Ngay lúc sự giằng xé nội tâm lên đến đỉnh điểm, một âm tha
 
 *"Để tôi,"* Ichi lên tiếng. 
 
-Lần này, Aki không chống cự nữa. Cậu nhắm nghiền mắt lại. Cậu chủ động nhường lại buồng lái của tâm trí. Ngay lập tức, nhịp thở đang dồn dập trở nên chậm rãi, đều đặn. Sự hung hãn trên gương mặt biến mất, thay vào đó là một vẻ điềm đạm, cổ kính và thâm trầm. 
+Lần này, Aki không chống cự nữa. Cậu nhắm nghiền mắt lại. Cậu chủ động buông bỏ lớp áo giáp đang bóp nghẹt chính mình, để mặc cho sự tĩnh lặng bao trùm. Ngay lập tức, nhịp thở đang dồn dập trở nên chậm rãi, đều đặn. Sự hung hãn trên gương mặt biến mất, thay vào đó là một vẻ điềm đạm, cổ kính và thâm trầm. 
 
 Ichi đã kiểm soát cơ thể lữ khách. Cậu từ từ mở mắt, buông thõng cánh tay. Thanh gươm rỉ sét rơi xuống nền đất rêu phong, phát ra một tiếng *cạch* khô khốc. 
 
@@ -84,6 +84,6 @@ Aki ở trong tiềm thức cũng lặng người đi. Cậu nhận ra rằng, s
 
 Tiếng nước suối chảy xiết dần làm mờ đi mọi thứ.
 
-Aki tỉnh giấc. Không khí trong phòng vẫn còn vương chút sương sớm mờ ảo lọt qua khe cửa. Cậu khẽ giơ bàn tay lên nhìn, dường như vẫn còn cảm giác thô ráp của cán gươm gỉ sét. Lần đầu tiên, cậu và nhân cách tĩnh lặng kia đã phối hợp với nhau thay vì đánh nhau sứt đầu mẻ trán. Lần đầu tiên, cậu để cho âm thanh của Sarah dẫn đường. 
+Aki tỉnh giấc. Không khí trong phòng vẫn còn vương chút sương sớm mờ ảo lọt qua khe cửa. Cậu khẽ giơ bàn tay lên nhìn, dường như vẫn còn cảm giác thô ráp của cán gươm gỉ sét. Lần đầu tiên, cậu và bóng hình tĩnh lặng kia đã phối hợp với nhau thay vì đánh nhau sứt đầu mẻ trán. Lần đầu tiên, cậu để cho âm thanh của Sarah dẫn đường. 
 
 Cậu khẽ mỉm cười, tung chăn bước xuống giường. Hôm nay, có lẽ trời sẽ quang đãng hơn một chút.

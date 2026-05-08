@@ -24,9 +24,9 @@ Cậu cúi xuống, nhặt một quả cam lên và đưa mắt nhìn người v
 
 Aki đứng như trời trồng. Não bộ cậu đang đình công.
 
-*"Đừng có tin người lạ! Nhỏ này ồn ào quá! Bỏ đi ngay!"* Bản ngã độc đoán, hung hãn trong tâm trí cậu lập tức gầm lên, đầy vẻ cảnh giác và bài xích.
+*"Sự ấm áp này là một cái bẫy. Tránh xa ánh sáng đó ra!"* Tiếng gầm gừ quen thuộc từ đáy vực tâm trí cậu lập tức nổ tung, đầy vẻ cảnh giác và bài xích.
 
-*"Thú vị thật,"* Giọng nói già cỗi, thâm trầm của nhân cách kia lại cất lên, mang theo một tiếng cười trầm khàn. *"Một sự trùng hợp không hề ngẫu nhiên của vũ trụ."*
+*"Thú vị thật,"* Giọng nói già cỗi, thâm trầm vọng lại từ nơi sâu thẳm lại cất lên, mang theo một tiếng cười trầm khàn. *"Một sự trùng hợp không hề ngẫu nhiên của vũ trụ."*
 
 "Này cậu? Cậu giận tớ hả?" Cô bé nghiêng đầu, vẫy vẫy bàn tay nhỏ xíu trước mặt Aki.
 
@@ -48,7 +48,7 @@ Câu nói vô tư của cô bé giống như một đòn búa giáng thẳng và
 
 Đã bao lâu rồi, không có ai bảo cậu cười? Đã bao lâu rồi, cậu chỉ quen đối mặt với sự độc đoán cay nghiệt và sự im lặng u buồn bên trong chính mình? Cô bé tên Hana này không chỉ có giọng nói giống với bản ngã thuần khiết đang ẩn sâu trong giấc mơ của cậu, mà cả tính cách, cả cách cô bé nhìn nhận thế giới... tất cả đều trùng khớp một cách hoàn hảo với sự tươi sáng, lạc quan của tuổi mười lăm mà cậu đã đánh mất.
 
-*"Tránh xa cô ta ra! Sự yếu đuối sẽ lây lan đấy!"* Giọng nói hung hãn lại the thé cất lên trong đầu, cố gắng đẩy Aki ra khỏi cuộc trò chuyện. Nó cảm thấy bị đe dọa. Một sự đe dọa khủng khiếp từ sự ấm áp.
+*"Tránh xa cô ta ra! Sự yếu đuối sẽ lây lan đấy!"* Tiếng gầm gừ lại the thé cất lên trong đầu, cố gắng đẩy Aki ra khỏi cuộc trò chuyện. Kẻ gai góc cảm thấy bị đe dọa. Một sự đe dọa khủng khiếp từ sự ấm áp.
 
 "Tôi... tôi phải mua đồ," Aki lắp bắp, quay mặt đi, bước vội về phía quầy hàng. Cậu không biết phải đối phó với nguồn năng lượng rực rỡ này như thế nào.
 

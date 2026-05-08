@@ -2,7 +2,7 @@
 
 Tiếng chuông tan trường vang lên lanh lảnh, đánh thức Aki khỏi cơn lơ mơ. 
 
-Cậu gục mặt xuống bàn học, hai thái dương giật liên hồi. Kể từ sau giấc mơ vỡ vụn trong mê cung gương đêm qua, đầu cậu luôn trong trạng thái căng như dây đàn. Bản ngã độc đoán bên trong cậu đang nổi điên. Nó gầm gừ, cào xé thành vách tâm trí, liên tục phát ra những lời đe dọa vô hình. Nó không chấp nhận sự thật rằng sức mạnh bạo lực của nó đã bị chặn đứng bởi một cái chạm tay mềm mỏng.
+Cậu gục mặt xuống bàn học, hai thái dương giật liên hồi. Kể từ sau giấc mơ vỡ vụn trong mê cung gương đêm qua, đầu cậu luôn trong trạng thái căng như dây đàn. Kẻ Giật Dây bên trong cậu đang nổi điên. Nó gầm gừ, cào xé thành vách tâm trí, liên tục phát ra những lời đe dọa vô hình. Nó không chấp nhận sự thật rằng sức mạnh bạo lực của nó đã bị chặn đứng bởi một cái chạm tay mềm mỏng.
 
 "Aki! Này, Aki!" 
 
@@ -14,7 +14,7 @@ Hana đẩy hộp kẹo về phía Aki. Ngay khoảnh khắc ngón tay cô bé s
 
 *"Hất nó đi! Đừng nhận bất cứ thứ gì từ kẻ khác! Bọn chúng chỉ mang lại rắc rối thôi!"* 
 
-Giọng nói the thé, cay nghiệt nổ tung trong đầu Aki. Lần này, nó mạnh mẽ đến mức thân thể cậu ngoài đời thực cũng bắt đầu phản ứng. Tay Aki run lên. Cậu cảm nhận được một luồng sức mạnh vô hình đang cố bẻ quặt cổ tay cậu, muốn cậu hất văng hộp kẹo xuống đất và hét thẳng vào mặt cô bé này. Bản ngã độc đoán đang cố giành quyền kiểm soát ngay giữa ban ngày.
+Giọng nói the thé, cay nghiệt nổ tung trong đầu Aki. Lần này, nó mạnh mẽ đến mức thân thể cậu ngoài đời thực cũng bắt đầu phản ứng. Tay Aki run lên. Cậu cảm nhận được một luồng sức mạnh vô hình đang cố bẻ quặt cổ tay cậu, muốn cậu hất văng hộp kẹo xuống đất và hét thẳng vào mặt cô bé này. Kẻ Giật Dây đang cố giành quyền thao túng ngay giữa ban ngày.
 
 *"Không..."* Aki cắn chặt môi đến ứa máu, cố gắng dùng chính ý thức của mình để kìm hãm con quái vật bên trong. 
 
@@ -38,9 +38,9 @@ Cậu định bước tới trước, nhưng cánh tay và đôi chân hoàn to�
 
 Từ trên khoảng tối đen ngòm của trần sân khấu, giọng nói quen thuộc cất lên. Lạnh lẽo, uy quyền và đầy tính thao túng.
 
-*"Ta đã bảo rồi. Những thứ mềm yếu ở bên ngoài chỉ làm rỉ sét hệ thống phòng thủ của chúng ta."* 
+*"Ta đã bảo rồi. Những thứ mềm yếu ở bên ngoài chỉ làm rạn nứt bức tường thành của chúng ta."* 
 
-Kẻ giật dây — bản ngã độc đoán — không hiện hình. Nó hòa làm một với bóng tối, chỉ dùng những sợi cước để thao túng cơ thể Aki. 
+Kẻ Giật Dây không hiện hình. Nó hòa làm một với bóng tối, chỉ dùng những sợi cước để kéo lê cơ thể Aki. 
 
 *Xoạch!* 
 
@@ -52,15 +52,15 @@ Sợi dây cước giật mạnh, ép chân Aki phải múa một điệu vặn 
 
 "Sự bảo vệ của ngươi là một cái nhà tù!" 
 
-Một giọng nói khác, trầm tĩnh và dạn dĩ vang lên từ dưới hàng ghế khán giả tối tăm. Mắt Aki đảo xuống. Ichi đang ngồi đó. Nhưng ông lão uyên bác trong hình hài thiếu niên không thể can thiệp. Toàn bộ thân thể Ichi đang bị trói chặt vào ghế bằng hàng chục sợi dây xích rỉ sét. Bản ngã độc đoán đã nhốt sự điềm tĩnh lại để toàn quyền lộng hành.
+Một giọng nói khác, trầm tĩnh và dạn dĩ vang lên từ dưới hàng ghế khán giả tối tăm. Mắt Aki đảo xuống. Ichi đang ngồi đó. Nhưng ông lão uyên bác trong hình hài thiếu niên không thể can thiệp. Toàn bộ thân thể Ichi đang bị trói chặt vào ghế bằng hàng chục sợi dây xích rỉ sét. Kẻ Giật Dây đã nhốt sự điềm tĩnh lại để thiết lập luật lệ của riêng nó.
 
-*"Im đi, lão già vô dụng! Ta không cần sự triết lý của mi!"* Kẻ giật dây gầm lên. Sợi cước lại giật mạnh, ép Aki đâm phập con dao vào một bóng ma giấy bồi mang hình dáng một cô bé mặc váy vàng. 
+*"Cất sự thông thái giả dối đó đi! Bức tường này là thứ duy nhất giữ chúng ta sống sót!"* Kẻ Giật Dây gầm lên. Sợi cước lại giật mạnh, ép Aki đâm phập con dao vào một bóng ma giấy bồi mang hình dáng một cô bé mặc váy vàng. 
 
-"KHÔNG!" Aki gào thét, nước mắt giàn giụa. Cậu dùng toàn bộ sức mạnh ý chí của bản thể gốc để ghì cánh tay lại. Lưỡi dao khựng lại cách hình nhân giấy bồi chỉ một milimet. Máu rỉ ra từ các khớp xương nơi dây cước cắm vào. Cuộc giằng co nội tâm diễn ra vô cùng thảm khốc.
+"KHÔNG!" Aki gào thét, nước mắt giàn giụa. Cậu dùng toàn bộ sức mạnh ý chí của đứa trẻ nguyên thủy để ghì cánh tay lại. Lưỡi dao khựng lại cách hình nhân giấy bồi chỉ một milimet. Máu rỉ ra từ các khớp xương nơi dây cước cắm vào. Từng giọt tuyệt vọng nhỏ xuống sàn gỗ khô khốc.
 
 Ngay lúc đó, ánh đèn đỏ trên sân khấu chớp tắt. 
 
-Một luồng sáng vàng dịu dàng chiếu xuyên qua lớp bụi mờ. Từ phía sau tấm màn nhung rách nát, cô gái mặc váy vàng lẳng lặng bước ra. Không phải hình nhân giấy. Là cô ấy. Bản ngã của sự thuần khiết. 
+Một luồng sáng vàng dịu dàng chiếu xuyên qua lớp bụi mờ. Từ phía sau tấm màn nhung rách nát, cô gái mặc váy vàng lẳng lặng bước ra. Không phải hình nhân giấy. Là cô ấy. Hình bóng của sự thuần khiết. 
 
 Cô gái không nói một lời. Cô cũng không hề bị những sợi dây cước thao túng. Cô nhẹ nhàng bước qua những bóng ma đang kêu gào, tiến lại gần Aki. Bàn tay nhỏ bé của cô đưa ra. Trên tay cô không phải là vũ khí, mà là một chiếc kéo bằng bạc phát sáng rực rỡ.
 
@@ -68,19 +68,19 @@ Cô gái không nói một lời. Cô cũng không hề bị những sợi dây 
 
 *"Đừng nghe nó! Giết nó đi!"* Kẻ giật dây hoảng loạn gào thét. Sợi cước giật ngược cánh tay cầm dao của Aki về phía sau, chuẩn bị tung một nhát đâm chí mạng vào cô gái.
 
-"Ta... KHÔNG PHẢI... LÀ RỐI CỦA NGƯƠI!"
+"Ta sẽ tự đi... trên đôi chân của mình!"
 
-Aki rống lên. Cậu dùng cằm kẹp chặt lấy lưỡi dao găm trên tay phải, đồng thời gồng hết mức để tay trái vươn tới chộp lấy chiếc kéo bạc từ tay cô gái. 
+Aki rống lên. Cậu dùng cằm kẹp chặt lấy lưỡi dao găm trên tay phải, đồng thời vươn tay trái tới chộp lấy chiếc kéo bạc từ tay cô gái. 
 
-*PHẬP!*
+*Ting...*
 
-Tiếng kim loại cắt đứt dây cước vang lên sắc lẹm. Sợi dây gắn ở tay trái đứt lìa. Cơ thể Aki chao đảo nhưng cậu không dừng lại. Cậu điên cuồng vung chiếc kéo bạc, chém đứt phựt từng sợi dây đang ghim vào cánh tay, đôi chân và sau gáy mình.
+Tiếng kim loại lướt qua dây cước vang lên êm ái như một nốt nhạc. Sợi dây gắn ở tay trái đứt lìa. Cơ thể Aki chao đảo nhưng cậu không dừng lại. Cậu vung chiếc kéo bạc, nhẹ nhàng và kiên quyết cắt đứt từng sợi dây đang ghim vào cánh tay, đôi chân và sau gáy mình. Không có sự cuồng loạn, chỉ có sự giải thoát tĩnh lặng.
 
-Mỗi khi một sợi dây đứt, tiếng hét thất thanh đầy đau đớn lại rền vang từ bóng tối trên trần nhà. Bản ngã độc đoán đang bị tước đoạt quyền lực.
+Mỗi khi một sợi dây đứt, một tiếng thở dài uất ức lại vang lên từ bóng tối trên trần nhà, tựa như một nốt đàn bị đứt dây dội lại trong không gian. Kẻ Giật Dây đang mất đi những sợ cước quyền lực của mình.
 
-Khi sợi dây cuối cùng bị cắt đứt, Aki ngã quỵ xuống sàn gỗ. Cậu thở dốc, mồ hôi ướt đẫm bộ quần áo cũ nát. 
+Khi sợi dây cuối cùng đứt lìa, Aki ngã quỵ xuống sàn gỗ. Cậu thở dốc, mồ hôi ướt đẫm bộ quần áo cũ nát. 
 
-*"Ngươi sẽ phải hối hận! Ngươi đã phá hủy bức tường bảo vệ! Bóng tối sẽ nuốt chửng tất cả!"* Giọng nói cay nghiệt yếu dần đi, nhưng trước khi lịm hẳn, nó đã tung ra đòn thù hằn cuối cùng.
+*"Ngươi sẽ phải hối hận! Bức tường đã vỡ! Bóng tối sẽ nuốt chửng tất cả chúng ta!"* Giọng nói cay nghiệt yếu dần đi, nhưng trước khi lịm hẳn, nó đã tung ra đòn thù hằn cuối cùng.
 
 *Rắc... ẦM!*
 
